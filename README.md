@@ -1,5 +1,5 @@
-## Kalo Begitu Kita Putus Saja!
-          fazila komtol😡
-<p><a href="https://wa.me/62857-3126-1728?text=maaf kan aku caca sayang hehe:>"> <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTA0IPBzzsqfD6cM_hnH8qbWDxg7c3rJJ-jmg&usqp=CAU" alt="Klik Untuk Meminta Maaf Kepada Ku😠" /></a></p>
+## Spamm Bocil kontol
+          Gan Raider Memek
+<p><a href="https://wa.me/+62838-4276-1997?text=woy+bocil+kontol"> <img src="https://telegra.ph/file/517a854246e71995c1769.png" alt="Spamm Sekarang!" /></a></p>
 
-## Klik Diatas Untuk Meminta Maaf Kepada Ku😡
+## Bhaha Kontol kontol
